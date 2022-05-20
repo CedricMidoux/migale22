@@ -1,4 +1,4 @@
 Bonjour !!
 
-* Migale - INRA
+* Migale - INRAE
 
