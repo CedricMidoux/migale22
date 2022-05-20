@@ -4,4 +4,4 @@ Bonjour !!
 
 edit en ligne
 
-vendredi
+Nous sommes le **vendredi 20 mai** 🕷️
