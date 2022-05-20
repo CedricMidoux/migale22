@@ -6,5 +6,5 @@ edit en ligne
 
 Nous sommes le **vendredi 20 mai** 🕷️
 
-![](img/migale.png)
+![](img/migale.pn)
 
